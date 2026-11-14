@@ -217,4 +217,4 @@ Knightfall: Death and Taxes is available as a full free version, ensuring all fe
 Don't wait! Download **Knightfall: Death and Taxes** today and dive into this amazing puzzle adventure!
 
 ---
-**Last updated:** 2026-11-13 22:19:16 UTC
+**Last updated:** 2026-11-14 02:49:29 UTC
